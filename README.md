@@ -1,2 +1,2 @@
 # personalsitescript
-https://bberkovic.cc/berk
+https://berkovic.cc/berk
